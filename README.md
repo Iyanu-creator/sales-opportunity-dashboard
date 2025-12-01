@@ -93,6 +93,3 @@ Email: giftiyanu@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/iyanu06/
 
-Email: giftiyanu@gmail.com
-
-LinkedIn: https://www.linkedin.com/in/iyanu06/
